@@ -62,15 +62,11 @@ EPP + EDR
 MFA @ EGAT: 500 vs 3000 | 18000 (federation O365)
 Federation O365
 
--- P'Mao ---
-- next week
-tue pm
-wed am
-thu am
-fri pm
-- next 2 weeks
-mon a/p 
-wed a
+
+
+book = 920 + 2876 + 
+book2 = ($25 + $89.93 + $112.30) = 7271.36 
+service = 5000 + 13000
 
 
 50

@@ -34,9 +34,16 @@ This is how He ransom our soul. Now we can autopilot **-- !!**
 
 - Cz: getting trapped by anger for ego/bossy people that devours my soul. Thanks God, P'Tung pray for love with us.
 
+---
 
 ### 2. faith | fear
-1. Faith: loaves, 5 fishes, rod & rock, rod & red sea, manna & quail, bread & reven, rock & giant, lion & a man, cloak & bleeding woman
+1. Fear: no things shall overcome fear except faith, and likewise 
+
+ex. cougar -
+pray hard for 10 days
+put faith forward 
+
+2. Faith: 2 loaves, 5 fishes, rod & rock, rod & red sea, manna & quail, bread & reven, rock & giant, lion & a man, cloak & bleeding woman
 
 ##### type of faith
 - dead faith, james 2:17, faith without works is dead. If your faith is real, you will produce fruit
@@ -44,16 +51,15 @@ This is how He ransom our soul. Now we can autopilot **-- !!**
 - vain faith, mat7:21-23, only religious practice 
 - saving faith
     - john3:16, God sent His beloved Son.
-    - **eph2:8-10**, you are saved by grace through faith  
+    - **eph2:8-10**, you are saved by `grace` through `faith`  
     - you ain't saved by previous good works, but you were made to do good works and point people to Christ. And, God prepared many good things for you to do. That's why we have so many journeys.  
 
 
-2. Fear: no things shall overcome fear except faith, and likewise 
-
 **Pastor David Diga Hernandez**
 For receiving Holy Spirit as our Lord, we get saved and received Him. Actually, you wouldn't be saved without Him in the first place. You're seeking but not finding bcoz `you're look for sth as if you don't have it.` you're looking for experience and miracle to validate a truth that you should already know by faith. So, `Faith is not what you ask for. It is in you so you got saved.`
-ex. complaining of Hebrew during exile, anxiety of disciple for 5k people, just like us complaining walking 
 `Our God is great and faithful` we stand on His promises
+
+---
 
 ### 3. walk | disregard
 
