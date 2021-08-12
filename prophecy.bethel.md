@@ -1,8 +1,23 @@
-# School of Prophet by Valloton and Mallacom
+# School of The Prophet by Kris and Dan
+
+**Contents**
+[Purpose of prophetic ministry](#purpose-of-prophetic-ministry)
+[Essential parts of prophecy](#essential-parts-of-prophecy)
+[Hearing God's voice & learning God's language](#hearing-god-voice-and-god-language)
+[How to judge & evaluage prophetic words](#evaluate-prophetic-words)
+[Receiving & ministering in the gift of prophecy](#receive-and-minister-in-the-prophetic-gift)
+[Prophetic etiquette (good manners/protocol)](#prophetic-etiquette)
+[False prophets](#false-prophet)
+[Keys to practicing prophecy](#key-to-practicing-prophecy)
+[Power of prophetic declaration part 1](#power-of-prophetic-declaration-1)
+[Power of prophetic declaration part 2](#power-of-prophetic-declaration-2)
+[Metron, three spheres of influences part 1](#sphere-of-influence-1)
+[Finding your sphere of influence part 2](#sphere-of-influence-2)
+[Apostles and Prophets](#apostle-and-prophet)
 
 ---
 
-# 1. purpose of prophetic ministry
+# 1. purpose of prophetic ministry {#purpose-of-prophetic-ministry}
 - it's about reconciliation 
 - `deu28:24`, it shall not rain on the unrighteous
 - `matt5:43-45`, transition btw old and new testament.  
@@ -39,7 +54,7 @@
 
 ---
 
-# 2. essential parts of prophecy
+# 2. essential parts of prophecy {#essential-parts-of-prophecy}
 
 `1cor12:1-6`, varieties gifts but same spirit. varieties ministries but same Lord. varieties of effects but same God. all things in all person. Paul said this to Corinthians who are based on Greek methodology (based on many gods).
 
@@ -82,7 +97,7 @@
 
 ---
 
-# 3. hearing God's voice & learning God's language
+# 3. hearing God's voice & learning God's language {#hearing-god-voice-and-god-language}
 
 > God is multilingual and He is not limited to speaking in one specific way
 
@@ -123,7 +138,7 @@
 
 --- 
 
-# 4. How to judge & evaluage prophetic words 
+# 4. How to judge & evaluage prophetic words {#evaluate-prophetic-words}
 
 `1the5:19-21`, do not despise prophetic utterance but **examine everything** carefully and hold fast to what is good
 
@@ -168,7 +183,7 @@
 
 ---
 
-# 5. receiving & ministering in the gift of prophecy
+# 5. receiving & ministering in the gift of prophecy {#receive-and-minister-in-the-prophetic-gift}
 
 gift = you don't have to work for it
 
@@ -207,7 +222,7 @@ receive from someone who is already flowing in that gift. the more you give, the
 
 ---
 
-# 6. prophetic etiquette (good manners/protocol)
+# 6. prophetic etiquette (good manners/protocol) {#prophetic-etiquette}
 `1cor14:32`, spirit of prophet is subject to prophet
 - you can manage yourself even in the Holy Spirit 
 
@@ -260,7 +275,7 @@ receive from someone who is already flowing in that gift. the more you give, the
 
 ---
 
-# 7. false prophets
+# 7. false prophets {#false-prophet}
 
 `1john4:1`, beloved, do not believe every spirit but **test the spirits** to see whether they are from God, because **many false prophets have gone out** into the world
 
@@ -324,7 +339,7 @@ receive from someone who is already flowing in that gift. the more you give, the
 
 ---
 
-# 8. keys to practicing prophecy
+# 8. keys to practicing prophecy {#key-to-practicing-prophecy}
 new beginning for practicing prophecy
 
 > the more you use your gifts, the better you get at it; practice how to move with the Holy Spirit
@@ -372,7 +387,7 @@ new beginning for practicing prophecy
 
 ---
 
-# 9. Power of prophetic declaration part 1
+# 9. Power of prophetic declaration part 1 {#power-of-prophetic-declaration-1}
 
 **Power of sound**
 - God used the sound of His voice to create eveything that exists
@@ -432,7 +447,7 @@ Then, Jesus, the Word, release the electromagnetic forces "let the light realm e
 
 --- 
 
-# 10. Power of prophetic declaration part 2
+# 10. Power of prophetic declaration part 2 {#power-of-prophetic-declaration-2}
 
 - take dominant of vibration on material to resonate it 
 - take much higher frequency on material's vibration to break it
@@ -470,7 +485,7 @@ Then, Jesus, the Word, release the electromagnetic forces "let the light realm e
 
 ---
 
-# 11. Metron, three spheres of influences part 1
+# 11. Metron, three spheres of influences part 1 {#sphere-of-influence-1}
 every prophet has their own sphere of influence 
 
 > prophet always has a mission and a metron (measurement / sphere of influence)
@@ -523,7 +538,7 @@ How do you expand your sphere of influence by **being faithful in the little thi
 
 --- 
 
-# 12. Finding your sphere of influence part 2
+# 12. Finding your sphere of influence part 2 {#sphere-of-influence-2}
 
 ### 2 ways to find sphere of influence
 1. assigned 
@@ -603,7 +618,7 @@ How do you expand your sphere of influence by **being faithful in the little thi
 
 ---
 
-# 13: Apostles and Prophets
+# 13: Apostles and Prophets {#apostle-and-prophet}
 - prophet is mentioned in the bible more than all the other 5-fold gifts put together
 
 `eph2:20`, having been build on the foundation of the apostile and prophets, Jesus Christ being the chief cornerstone.
